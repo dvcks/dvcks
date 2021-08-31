@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @dvcks
+- 👀 I’m interested in pixel art and jpegs
+- 🌱 I’m currently learning about the blockchain
+- 📫 How to reach me: dvcksnft@gmail.com and @dvcks_ on Twitter
